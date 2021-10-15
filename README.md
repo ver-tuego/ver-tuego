@@ -1,6 +1,6 @@
 ### Hey! 👣
 ___
-### I am a member of the SaBTeam team!
+### I am a member of the SaBTeam!
 #### Only one. 🌟
 
 ## About me
